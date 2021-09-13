@@ -1,0 +1,2 @@
+# ndo
+Saya butuh NFT
